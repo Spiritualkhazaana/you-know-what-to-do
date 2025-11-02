@@ -1,1 +1,3 @@
-# you-know-what-to-do
+# *You Know What To Do : A Deep Dive into the 7 Pillars of Intuitive Living*
+## *In a world filled with distraction, confusion, and external noise, many individuals find themselves uncertain about what steps to take next. “You Know What To Do” by Robert Ellis tackles this dilemma head-on, guiding readers to reconnect with their inner voice—the true compass within—and make confident, aligned decisions. This book is a powerful journey into understanding oneself deeply, mastering environment influences, and recognizing the importance of spiritual, mental, and physical harmony.* [More details…](https://spiritualkhazaana.com/you-know-what-to-do-intuitive-living/)
+## #whattodo #spiritualawareness #themind #spiritualjourney #innervoice
